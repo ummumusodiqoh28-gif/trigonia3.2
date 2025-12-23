@@ -1,1 +1,0 @@
-# trigonia3.2
